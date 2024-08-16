@@ -1,1 +1,1 @@
-# dekopinda-pacitan
+# dekopinda-karanganyar
